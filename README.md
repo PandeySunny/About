@@ -1,4 +1,3 @@
-# About
 
 # Hi, I'm Sunny Pandey! 👋
 
